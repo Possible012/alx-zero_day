@@ -1,1 +1,1 @@
-do hard thing
+do hard things
